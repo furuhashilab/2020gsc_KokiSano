@@ -32,7 +32,7 @@
 
 ## Methods
 　
-## Results
+## Results（成果物）
 ## Discussion
 ## Conclusion
 ## 謝辞
