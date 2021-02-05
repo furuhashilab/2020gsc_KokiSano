@@ -59,6 +59,6 @@ https://docs.google.com/spreadsheets/d/1g0eQedyXYkM6U7-wQ9Sk8WuwJ6fTcOxlsa2oQIvf
 https://medium.com/furuhashilab/12月24日アドベントカレンダー-ドローンイベント広報上の最重要視点の選定-8044d439c747
 
 
-
+© Furuhashi Laboratory/Koki Sano, CC BY 4.0
  
 
