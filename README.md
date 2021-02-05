@@ -45,6 +45,8 @@ https://drive.google.com/file/d/1sfgQmIfvn9Wq4wDNYDIFomhl5-vzuqGp/view?usp=shari
 　本研究を進めるにあたり古橋大地教授をはじめ、多くの方々より多大な助言を賜りました。厚く感謝を申し上げます。
 ## スライド
 https://docs.google.com/presentation/d/1PqUv-9WHJJXE_-Gvyo5Kez9Y4sz5fkt4Y1A9rPDFQFQ/edit?usp=sharing
+## ゼミ論概要
+https://docs.google.com/document/d/1hT6A7MQRmD3jp-NkzAT2dIeWN-2X0_WGo1aTpzgv2CQ/edit?usp=sharing
 ## 参考文献リスト
 https://docs.google.com/spreadsheets/d/1g0eQedyXYkM6U7-wQ9Sk8WuwJ6fTcOxlsa2oQIvfT6o/edit#gid=0
 ## 中間Medium  
