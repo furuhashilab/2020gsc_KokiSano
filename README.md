@@ -50,7 +50,7 @@ https://drive.google.com/file/d/1sfgQmIfvn9Wq4wDNYDIFomhl5-vzuqGp/view?usp=shari
 ## 謝辞
 　本研究を進めるにあたり古橋大地教授をはじめ、多くの方々より多大な助言を賜りました。厚く感謝を申し上げます。
 ## スライド
-https://docs.google.com/presentation/d/1PqUv-9WHJJXE_-Gvyo5Kez9Y4sz5fkt4Y1A9rPDFQFQ/edit?usp=sharing
+https://docs.google.com/presentation/d/1O__KAJ8XlIYOjLN3bOHBYXo41xPh4SMK9cK9G09zct8/edit?usp=sharing
 ## ゼミ論概要
 https://docs.google.com/document/d/1hT6A7MQRmD3jp-NkzAT2dIeWN-2X0_WGo1aTpzgv2CQ/edit?usp=sharing
 ## 参考文献リスト
